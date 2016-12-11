@@ -1,3 +1,5 @@
+#Personal Finance Tips That Can Work For Anyone
+
 You've done it. You're ready to get your personal finances on the right track. Now's the time! You probably have tons of questions on how to start and what to do, but fear not, this article can help you. Listed below are some tips that will help you to start improving your [personal finances](http://darbyneagle.com/).
 
 You can save on energy bills by using energy efficient appliances. Switch out those old light bulbs and replace them with Energy Star compliant ones. This will save on your energy bill and give your lamps a longer lifespan. Using energy efficient toasters, refrigerators and washing machines, can also help you save a lot of money in the long haul.
